@@ -13,3 +13,12 @@ installed on the device make use of data provided by the magnetometer to calcula
 
 # september 12, 2024
 i didnt think that folling the stepts were hard all you have to do is read and follow directions 
+\
+
+
+
+
+
+
+# september 18, 2024
+this is a free week
