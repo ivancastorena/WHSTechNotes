@@ -21,6 +21,9 @@ Absolutely, breaking down complex problems into smaller, manageable parts is a f
 
 
 
+# january 22, 2025
+In a much-anticipated decision, the U.S. Supreme Court upheld the Protecting Americans from Foreign Adversary Controlled Applications Act, signed into law on April 24, 2024, requiring ByteDance, the TikTok app's Chinese parent company, to divest its interest in TikTok by Jan. 19, 2025, or face a nationwide ban.
+The Department of Justice (DOJ) argues the law has two purposes: to limit the Chinese government's ability to “covertly” manipulate what Americans see on TikTok, and to prevent the Chinese government from accessing Americans' data.
 
 
 
