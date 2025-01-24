@@ -39,8 +39,7 @@ this is a free week
 coming into the new year i would probobly would want to keep on working on phyton because its my favrite thing out of everything weve done the pass semester.While Python is considered one of the easiest programming languages for a beginner to learn, it can be hard to master. Anyone can learn Python if they work hard enough at it, but becoming a Python Developer will require a lot of practice and patience and hard work or not really 
 
 
+# january 13, 2024
 
-
-
-
+AI can handle mundane tasks, allowing humans to focus on higher-level work that requires creativity and strategic thinking. What is the role of reskilling in adapting to AI-driven changes? Reskilling helps individuals stay relevant by learning new technologies and adapting to the evolving job market.The role of AI in the IT industry. AI plays a pivotal role in the IT industry. It has the potential to automate routine tasks, provide predictive analysis, and enable advanced system programming and automation.
 
