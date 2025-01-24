@@ -29,3 +29,18 @@ The Department of Justice (DOJ) argues the law has two purposes: to limit the Ch
 
 # september 18, 2024
 this is a free week
+
+
+
+
+
+
+# january 87, 2024
+coming into the new year i would probobly would want to keep on working on phyton because its my favrite thing out of everything weve done the pass semester.While Python is considered one of the easiest programming languages for a beginner to learn, it can be hard to master. Anyone can learn Python if they work hard enough at it, but becoming a Python Developer will require a lot of practice and patience and hard work or not really 
+
+
+
+
+
+
+
