@@ -48,3 +48,27 @@ AI can handle mundane tasks, allowing humans to focus on higher-level work that 
 
 # february 4, 2025
 Some modern technological advancements that have been developed and utilized for the sole purpose of enhancing aviation safety include airborne collision avoidance systems, satellite-based solar ships, space-based platform monitoring, heads-up display, global positioning system, synthetic vision systems, enhanced Technology on new aircraft can either improve fuel burn through aerodynamic efficiency (mainly airframe), or reduce actual combustion use (mainly engine-related). Combined, these elements create a new aircraft with a reduced environmental impact.World War II was a period of significant technological advancement in aviation, with developments that would lay the foundation for the modern aerospace industry. Innovations such as jet propulsion, radar, and improved aerodynamics radically transformed the capabilities of aircraft.
+
+
+
+
+
+
+
+
+
+# april 14, 2025 
+Bans on certain items in schools, like cell phones or certain books, can be either beneficial or detrimental, depending on the specific situation and the implementation of the policy. While they can create a more focused learning environment and potentially reduce distractions and bullying, they can also be seen as limiting student freedom and potentially impacting their mental health.
+
+In summary, the impact of school bans is multifaceted and depends on the specific context. It's crucial to consider both the potential benefits and drawbacks, engage in open communication with students, and strive for policies that balance safety and learning with student rights and well-being. 
+
+
+
+
+
+
+# april 7, 2025 
+AI can make notes, flashcards and quizzes aligned with your course which makes studying much more efficient. It can summarise complex information and help you understand it better. AI can find reliable information quickly saving you a lot of time on research. They can help you keep your notes organizedAI in higher education assessments goes beyond traditional testing by enabling adaptive learning. Adaptive testing adjusts the difficulty of questions based on a student's performance in real time, creating a personalized assessment experience.
+
+AI can significantly enhance studying by personalizing the learning experience, providing instant feedback, and generating customized study materials. It can also help students understand concepts better, save time, and improve their overall learning experience. 
+Here's how. 
