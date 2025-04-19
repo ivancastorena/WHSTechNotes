@@ -72,3 +72,11 @@ AI can make notes, flashcards and quizzes aligned with your course which makes s
 
 AI can significantly enhance studying by personalizing the learning experience, providing instant feedback, and generating customized study materials. It can also help students understand concepts better, save time, and improve their overall learning experience. 
 Here's how. 
+
+
+
+# apil 14 2025
+Parents and principals who favor banning cell phones in classrooms argue they distract students and diminish focus, can provide students access to questionable content, increase cyberbullying and other disciplinary issues, create physical and mental health issues, encourage cheating and potentially expose children to not learn or forcus with a phone all the time. Advocates of zero-tolerance policies argue that removing students who violate such policies from school diminishes the threat of violence and allows those who adhere to school rules and regulations to focus on their education in a safe and secure environment.
+
+
+ Overall, school policies and procedures establish expectations, keep students and staff safe, and make sure students receive a good educationA school-wide cellphone ban could improve focus, potentially boost academic performance, and reduce distractions during class. It might also decrease instances of bullying, cheating, and social media-related mental health issues. 
