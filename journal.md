@@ -79,4 +79,17 @@ Here's how.
 Parents and principals who favor banning cell phones in classrooms argue they distract students and diminish focus, can provide students access to questionable content, increase cyberbullying and other disciplinary issues, create physical and mental health issues, encourage cheating and potentially expose children to not learn or forcus with a phone all the time. Advocates of zero-tolerance policies argue that removing students who violate such policies from school diminishes the threat of violence and allows those who adhere to school rules and regulations to focus on their education in a safe and secure environment.
 
 
- Overall, school policies and procedures establish expectations, keep students and staff safe, and make sure students receive a good educationA school-wide cellphone ban could improve focus, potentially boost academic performance, and reduce distractions during class. It might also decrease instances of bullying, cheating, and social media-related mental health issues. 
+ Overall, school policies and procedures establish expectations, keep students and staff safe, and make sure students receive a good educationA school-wide cellphone ban could improve focus, potentially boost academic performance, and reduce distractions during class. It might also decrease instances of bullying, cheating, and social media-related mental health issues.
+
+
+
+
+
+ # may 5, 2025 
+
+In a fight between 100 humans and one gorilla, the humans would likely win due to their numbers and ability to coordinate, even if they suffer significant casualties. While a gorilla is incredibly strong, even a The Silverback Gorilla could be overwhelmed by the sheer weight and number of humans. However, the sheer power and ferocity of a gorilla cannot be understated. It's built for raw power and defense. Considering all these factors, it's highly unlikely that 100 unarmed, moderately fit men could successfully take on a full-grown male gorilla in a direct confrontation, regardless of the spatial constraints.
+
+
+A silverback gorilla is a powerful animal, capable of lifting over 1,000 kg (2,200 lbs). It can also sprint at speeds of up to 25 mph. In a fight between 100 men and one gorilla, the humans would likely win, though it would be a brutal and bloody affair with significant casualties on the human side. The sheer number of men allows for coordinated attacks, strategic use of space, and the ability to tire out the gorilla over time. However, a gorilla's immense strength and bite force would lead to a large number of casualties in the initial stages. 
+
+
