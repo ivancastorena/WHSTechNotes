@@ -93,3 +93,9 @@ In a fight between 100 humans and one gorilla, the humans would likely win due t
 A silverback gorilla is a powerful animal, capable of lifting over 1,000 kg (2,200 lbs). It can also sprint at speeds of up to 25 mph. In a fight between 100 men and one gorilla, the humans would likely win, though it would be a brutal and bloody affair with significant casualties on the human side. The sheer number of men allows for coordinated attacks, strategic use of space, and the ability to tire out the gorilla over time. However, a gorilla's immense strength and bite force would lead to a large number of casualties in the initial stages. 
 
 
+# may 12, 2025 
+
+The “Chromebook challenge” involves students jamming objects into their laptops until they spark and smolder. Students then record the smoking laptops and share the footage on TikTok and Instagram, sometimes set to music, as viewers react with heart and thumbs-up emojisIt’s not just the expensive computers that get damaged: Floors and desks are scorched. Lessons are interrupted. Classrooms are evacuated. Fire and police departments are summoned. And some students have been suspended or even faced criminal charges, as schools work to stop the trend.
+
+
+The “Chromebook challenge” involves using objects such as push pins, staples, paper clips, metallic gum wrappers and graphite, found in pencil lead. They are inserted into USB or charging ports, under keyboard keys, or near the batteries to deliberately short-circuit the devices.
